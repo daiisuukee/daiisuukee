@@ -2,9 +2,9 @@
 
 hi there is daiisuukee，the name is from the classic meme (DAISUKE)，it sounds not bad(also in Chinese meaning)，i'm lovin it！！！
 
-摸鱼冠军选手，但这样是不行的，要努力了！
+摸鱼冠军选手！
 
-the champin of moyu(a way of being lazy)，but that's damedame,I need to work hard!
+the champin of moyu(a way of being lazy)!
 
 <!---
 daiisuukee/daiisuukee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
